@@ -1,4 +1,4 @@
-![ReadmeImage!](Ibrahim Sarhan(2).png)
+![ReadmeImage!](Ibrahim.png)
 ### Hi there 👋
 
 # I'm Ibrahim Sarhan  🐝
